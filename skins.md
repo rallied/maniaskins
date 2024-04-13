@@ -1,4 +1,4 @@
-#tysm lily for the momose mitsuki skin <3>
+# tysm lily for the mitsuki momose skin <3
 
 # [momose 10-06-23](https://cdn.discordapp.com/attachments/854203014259933244/1228604711972638800/momose.osk?ex=662ca64d&is=661a314d&hm=ecffc0d5555e8b6149a1fe77d7f459e53ae95900baa14c05a6661364bd17b576&)
 
