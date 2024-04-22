@@ -17,7 +17,7 @@
 ![ayanu](https://github.com/rallied/maniaskins/blob/main/ayanu.jpg)
 <br>
 
-# [shondo 4-22-24]
+# shondo 4-22-24 (private)
 
 ![shondo](https://github.com/rallied/maniaskins/blob/main/shondo.jpg)
 <br>
