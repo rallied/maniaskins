@@ -24,16 +24,16 @@
 
 # [mayulove 5-13-24](https://cdn.discordapp.com/attachments/854203014259933244/1240314961171845182/mayuchi.osk?ex=66461cd2&is=6644cb52&hm=5fd263e10b6ed7f3d60c443dddae5bf56591a24d3b10531ad52a74fcc0536080&)
 
-! [mayu](https://github.com/rallied/maniaskins/blob/main/mayu.jpg)
+![mayu](https://github.com/rallied/maniaskins/blob/main/mayu.jpg)
 <br>
 
 # [fuwamocobruh 5-14-24](https://cdn.discordapp.com/attachments/854203014259933244/1240315163496677376/fuwamocobruh.osk?ex=66461d02&is=6644cb82&hm=3b1b57b680d97fb06e3054fa91c9b65636a347d6b43a0bb8ef43a53afd14cfe7&)
 
-! [fuwamoco](https://github.com/rallied/maniaskins/blob/main/fuwamoco.jpg)
+![fuwamoco](https://github.com/rallied/maniaskins/blob/main/fuwamoco.jpg)
 <br>
 
 # [yukari arrow 5-15-24](https://cdn.discordapp.com/attachments/854203014259933244/1240315262041854072/yukari_arrow.osk?ex=66461d1a&is=6644cb9a&hm=9e8537ec21f9ea5b00238d981286f5185ae63ce4b09cc1354024ae16bd9ac6f2&)
 
-! [yukari](https://github.com/rallied/maniaskins/blob/main/yukari.jpg)
+![yukari](https://github.com/rallied/maniaskins/blob/main/yukari.jpg)
 <br>
 
