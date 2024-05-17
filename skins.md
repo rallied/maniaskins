@@ -37,8 +37,13 @@ most of these are skin *edits* and are not originally made by me
 ![yukari](https://github.com/rallied/maniaskins/blob/main/yukari.jpg)
 <br>
 
-# [yukari boge](https://cdn.discordapp.com/attachments/1240550008600924162/1240955101519282217/yukari_boge.osk?ex=66487100&is=66471f80&hm=cf1df81f5fcb7bfff5b5207e30f0772f758a9eb5e86f698e5ab165fb495808a8&)
+# [yukari boge 5-16-24](https://cdn.discordapp.com/attachments/1240550008600924162/1240955101519282217/yukari_boge.osk?ex=66487100&is=66471f80&hm=cf1df81f5fcb7bfff5b5207e30f0772f758a9eb5e86f698e5ab165fb495808a8&)
 
 ![yukari2](https://github.com/rallied/maniaskins/blob/main/boge.jpg)
+<br>
+
+# [Yukarin ayanu edit 5-17-24] (private)
+
+![yukarin]https://github.com/rallied/maniaskins/blob/main/yukarin.jpg
 <br>
 
