@@ -44,6 +44,6 @@ most of these are skin *edits* and are not originally made by me
 
 # [Yukarin ayanu edit 5-17-24] (private)
 
-![yukarin]https://github.com/rallied/maniaskins/blob/main/yukarin.jpg
+![yukarin](https://github.com/rallied/maniaskins/blob/main/yukarin.jpg)
 <br>
 
