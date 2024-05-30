@@ -50,12 +50,12 @@ white text skins are private/ lost
 
 # kiki shisui [5-18-24]
 
-![kiki] (https://github.com/rallied/maniaskins/blob/main/kiki.jpg)
+![kiki](https://github.com/rallied/maniaskins/blob/main/kiki.jpg)
 
 <br>
 
 # dhana opini [5/30/24]
 
-! [dhana] (https://github.com/rallied/maniaskins/blob/main/dhana.jpg)
+![dhana](https://github.com/rallied/maniaskins/blob/main/dhana.jpg)
 
 <br>
