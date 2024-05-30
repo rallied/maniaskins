@@ -1,6 +1,7 @@
 # tysm lily for the mitsuki momose skin <3
 
 most of these are skin *edits* and are not originally made by me
+white text skins are private/ lost
 
 # [momose 10-06-23](https://cdn.discordapp.com/attachments/854203014259933244/1228604711972638800/momose.osk?ex=662ca64d&is=661a314d&hm=ecffc0d5555e8b6149a1fe77d7f459e53ae95900baa14c05a6661364bd17b576&)
 
@@ -42,8 +43,19 @@ most of these are skin *edits* and are not originally made by me
 ![yukari2](https://github.com/rallied/maniaskins/blob/main/boge.jpg)
 <br>
 
-# [Yukarin ayanu edit 5-17-24] (private)
+# [Yukarin ayanu edit 5-17-24]
 
 ![yukarin](https://github.com/rallied/maniaskins/blob/main/yukarin.jpg)
 <br>
 
+# kiki shisui [5-18-24]
+
+![kiki] (https://github.com/rallied/maniaskins/blob/main/kiki.jpg)
+
+<br>
+
+# dhana opini [5/30/24]
+
+! [dhana] (https://github.com/rallied/maniaskins/blob/main/dhana.jpg)
+
+<br>
