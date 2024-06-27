@@ -63,7 +63,7 @@ white text skins are private/ lost
 
 <br>
 
-#senzawa [6-25-24](https://cdn.discordapp.com/attachments/854203014259933244/1255923563051876402/-_love_senzawa.osk?ex=667ee577&is=667d93f7&hm=1f4a3b5d604c3b3f8f1d7f2cf46a3dc1015e123e879e9010bd763cdf757fdd38&)
+# senzawa [6-25-24](https://cdn.discordapp.com/attachments/854203014259933244/1255923563051876402/-_love_senzawa.osk?ex=667ee577&is=667d93f7&hm=1f4a3b5d604c3b3f8f1d7f2cf46a3dc1015e123e879e9010bd763cdf757fdd38&)
 
 ![senzawa](https://github.com/rallied/maniaskins/blob/main/sen.png)
 
