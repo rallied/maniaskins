@@ -62,3 +62,9 @@ white text skins are private/ lost
 ![dhana](https://github.com/rallied/maniaskins/blob/main/dhana.jpg)
 
 <br>
+
+#senzawa [6-25-24]
+
+![senzawa](https://github.com/rallied/maniaskins/blob/main/senzawa.mp4)
+
+<br>
